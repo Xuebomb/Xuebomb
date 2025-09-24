@@ -1,6 +1,6 @@
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ Ი︵𐑼
 
-![blackysea](https://github.com/user-attachments/assets/2f94b88c-f544-443c-ae3c-07671b2d04f0)
+![a99a28c21cfcf6f632524cba2089968d](https://github.com/user-attachments/assets/c6d142a4-7625-45eb-ad43-248fd323ba2b)
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔     ≽^•˕• ྀི≼    
  𓆩♡𓆪
