@@ -1,5 +1,5 @@
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ Ი︵𐑼
-<img width="736" height="414" alt="1  üst kısım-Photoroom" src="https://github.com/user-attachments/assets/5b2d3a35-3abe-4d2b-bbd3-7c7735abf90b" />
+<img width="736" height="117" alt="1  üst kısım-Photoroom" src="https://github.com/user-attachments/assets/d12f7ad2-79e7-4250-93d1-a663cf7eec9f" />
 hai!
 <img width="1199" height="428" alt="red aa" src="https://github.com/user-attachments/assets/c5134508-f26c-47b1-b048-3848b4f22e27" />
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔     ≽^•˕• ྀི≼    
