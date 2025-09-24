@@ -3,3 +3,4 @@
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
  𓆩♡𓆪
  <img width="736" height="117" alt="2  alt-Photoroom" src="https://github.com/user-attachments/assets/0c8949e3-c560-4579-857d-9027cfd46690" />
+You can call me Xue. I love learning about different cultures and languages, and I also enjoy classic activities like swimming and reading books. I prefer a few close friends over many casual acquaintances. :) my bf:dromy
