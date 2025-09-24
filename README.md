@@ -5,5 +5,5 @@ hai!
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔     ≽^•˕• ྀི≼    
  𓆩♡𓆪
  Xue
-<img width="736" height="414" alt="2  alt-Photoroom" src="https://github.com/user-attachments/assets/ca170d3f-c8ae-454b-bb9c-dfac0f51c66d" />
+ <img width="736" height="117" alt="2  alt-Photoroom" src="https://github.com/user-attachments/assets/0c8949e3-c560-4579-857d-9027cfd46690" />
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ Ი︵𐑼
