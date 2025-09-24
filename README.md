@@ -6,6 +6,6 @@
  𓆩♡𓆪
  Xue
 
-![catty](https://github.com/user-attachments/assets/38d7d361-772c-4235-a347-d9c0a8031e49)
+<img width="736" height="414" alt="banner-Photoroom" src="https://github.com/user-attachments/assets/493fc38f-d503-4f09-9e10-c9ad6b7c3c8d" />
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ Ი︵𐑼
