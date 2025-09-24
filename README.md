@@ -1,6 +1,6 @@
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ Ი︵𐑼
 
-![a99a28c21cfcf6f632524cba2089968d](https://github.com/user-attachments/assets/c6d142a4-7625-45eb-ad43-248fd323ba2b)
+<img width="1199" height="428" alt="red aa" src="https://github.com/user-attachments/assets/c5134508-f26c-47b1-b048-3848b4f22e27" />
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔     ≽^•˕• ྀི≼    
  𓆩♡𓆪
